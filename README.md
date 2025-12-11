@@ -10,7 +10,7 @@
 
 ---
 
-[portfolio](https://paularies.ca) · [socials](https://bio.paulaires.ca) · [linkedIn](https://www.linkedin.com/in/paularies/)
+[portfolio](https://paularies.ca) · [socials](https://bio.paularies.ca) · [linkedIn](https://www.linkedin.com/in/paularies/)
 
 <br/>
 
